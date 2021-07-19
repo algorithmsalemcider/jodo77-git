@@ -3,6 +3,6 @@
 
 
 ## 💟 age: 15 :0
-## 📫 How to reach me: Email :> https://forms.gle/ZVs7RNv3NoZ9iamB6
+## 📫 How to reach me: joodaf@gmail.com
 ## 😄 Pronouns: she/her
 ## ⚡ Fun fact: AAAAAAAAAAAAAAAAAAAAAAAAAAAAAA
